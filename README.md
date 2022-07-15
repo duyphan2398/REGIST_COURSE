@@ -1,0 +1,1 @@
+# REGIST_COURSE
